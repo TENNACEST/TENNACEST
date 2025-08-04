@@ -1,6 +1,7 @@
 ### Hey oomfs
 ### Polymikes, BatRamb, Antmike and SpamGreen INT 
 my main . [@NarcissisticSelfShippingSinner]
+## im a perv here. sorry not sorry! i want tenna and i want him bad i need to be up in his wires and him to manhandle me and use me as an ashtray as i deservee huu..
 
 https://github.com/user-attachments/assets/de72e8b9-e464-477c-abc8-5e80ac7321cf
 
