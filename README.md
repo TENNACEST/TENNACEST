@@ -1,5 +1,5 @@
-# MY MILLION DOLLAR IDEA 
-<img width="1430" height="686" alt="Screenshot 2025-09-01 141909" src="https://github.com/user-attachments/assets/dd91cb5a-dff8-4f29-bf12-cd545dbbb6ec" />
+# If ANY christmas party or just tenna au centric servers exist AT ALL and theres ANYWAY I can get in PLEASE LET ME KNOW. Tenna AU's r my hyperfixation atm and I'll forever be ill about them so pls LORD SOMEONE ANYONE GET ME TO [HEAVEN]
+
 
 
 
