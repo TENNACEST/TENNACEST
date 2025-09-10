@@ -1,3 +1,7 @@
+# MY MILLION DOLLAR IDEA 
+<img width="1430" height="686" alt="Screenshot 2025-09-01 141909" src="https://github.com/user-attachments/assets/dd91cb5a-dff8-4f29-bf12-cd545dbbb6ec" />
+
+
 
 ### tenna otp edit..? yes? ok? 
 
