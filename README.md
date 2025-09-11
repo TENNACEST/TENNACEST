@@ -1,4 +1,5 @@
-# If ANY christmas party or just tenna au centric servers exist AT ALL and theres ANYWAY I can get in PLEASE LET ME KNOW. Tenna AU's r my hyperfixation atm and I'll forever be ill about them so pls LORD SOMEONE ANYONE GET ME TO [HEAVEN]
+# remembered i have free will and i can draw my favs as album covers i like
+<img width="6720" height="6720" alt="CORPPRODUKT" src="https://github.com/user-attachments/assets/d72f5268-b8f8-499b-9ca9-4cbaebc425ef" />
 
 
 
