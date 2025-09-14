@@ -1,6 +1,4 @@
-# remembered i have free will and i can draw my favs as album covers i like
-<img width="6720" height="6720" alt="CORPPRODUKT" src="https://github.com/user-attachments/assets/d72f5268-b8f8-499b-9ca9-4cbaebc425ef" />
-
+https://github.com/user-attachments/assets/6f658a30-a677-4c08-9b14-15e25b020003
 
 
 
