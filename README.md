@@ -1,5 +1,5 @@
 
-https://github.com/user-attachments/assets/110c7267-77ef-428e-aab0-74c83222e7fb
+# [BYI](https://rentry.co/WhatsItLikeToJustBeCompetent)
 
 
 
